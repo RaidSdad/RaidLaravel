@@ -1,0 +1,1 @@
+saya sekolah di SMKN 4 BANDUNG
